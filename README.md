@@ -1,0 +1,1 @@
+# Apowersoft-Screen-Capture-Full-Version
